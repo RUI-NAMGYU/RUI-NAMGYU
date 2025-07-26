@@ -3,3 +3,23 @@
 @     ![STRAWPAGE](https://kimseowwan.straw.page)   —     ![ATABOOK](https://ruinnamgyu.atabook.org/)    —  REMAKING CARD IN PROGRESS
 
 C+H ( **cuddles + hiding** ) FREELY, even on dni / iwc. just avoid talking 2 me dawg
+
+
+
+
+![17535001628504401525912277477666](https://github.com/user-attachments/assets/35e46bb0-5961-4aec-ae5e-e9e69604b247)
+
+
+ 🍇   ⇨   ❛   ❀ RUI @ NAMGYU
+
+ ➸   ⁿⁿ   🍭′★   – hello there pals!! Please call me whatever,,, ask 4 nickname though
+
+ 💷   ⟢   ⪩   ☼ im diagnosed did , schizophrenic and dyslexic. RUI / JAEWON / KIM FREQUENT FRONTERs
+
+　✦    .    .     ✦
+
+🌆 　 ( / ) 　 = most of my friends call me rui, but Namgyu would be appreciated <//3
+
+🌆 　 ( / ) 　 ⋎⋎ im not open to my did system toward specific people
+
+🌆 　 ( / ) 　 ⋎⋎ mostly ask4prns but xe / xem is okay!
