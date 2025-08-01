@@ -14,7 +14,7 @@ C+H ( **cuddles + hiding** ) FREELY, even on dni / iwc. just avoid talking 2 me 
 
  ➸   ⁿⁿ   🍭′★   – hello there pals!! Please call me whatever,,, ask 4 nickname though
 
- 💷   ⟢   ⪩   ☼ im diagnosed did , schizophrenic and dyslexic. RUI / JAEWON / KIM FREQUENT FRONTERs
+ 💷   ⟢   ⪩   ☼ im diagnosed did , schizophrenic and dyslexic. RUI / JAEWON / KIM / NAMGYU (not namsu) FREQUENT FRONTERs
 
 　✦    .    .     ✦
 
