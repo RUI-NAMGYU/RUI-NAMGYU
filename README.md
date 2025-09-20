@@ -1,7 +1,7 @@
 ![](https://files.catbox.moe/9bsjji.png)
 
 　　　　　__*ru*i__ namgyu　 ᜊ( ˊᵕˋ )ᜊ
-⠀　　[ata](https://ruinnamgyu.atabook.org/)　𓏭 ⟡ 　　🔪 　　. /[**straw**__page__](https://namrui.straw.page)
+⠀　　[ata](https://namrui.atabook.org/)　𓏭 ⟡ 　　🔪 　　. /[**straw**__page__](https://namrui.straw.page)
 
 
 
